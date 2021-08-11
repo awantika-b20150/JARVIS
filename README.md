@@ -1,8 +1,5 @@
 # JARVIS
 
-## uewfhwj
-### hbghkebgbe
-
 
 
 
